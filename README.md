@@ -1,2 +1,2 @@
 Marek Ruciński, Sebastian Nurzyński
-dupsko
+Po wielokroć
