@@ -1,3 +1,6 @@
 Marek Ruciński, Sebastian Nurzyński
-dupsko
+
 noga
+
+Po wielokroć
+
